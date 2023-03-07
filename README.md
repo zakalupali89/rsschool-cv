@@ -1,1 +1,1 @@
-https://zakalupli89.github.io/rsschool-cv/cv
+https://zakalupali89.github.io/rsschool-cv/cv
